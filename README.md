@@ -63,3 +63,47 @@ Serves 8. About 45 minutes of prep, 1 hour in the oven.
   vegetarian; salt and drain the vegetables first so the layers do not go watery.
 - Assembles up to a day ahead. Refrigerate unbaked and add 10 minutes to the
   covered bake time.
+
+### Spaghetti Bolognese
+
+Serves 4. About 15 minutes of prep, 1 hour of cooking.
+
+#### Ingredients
+
+- 2 tbsp olive oil
+- 1 onion, finely diced
+- 1 carrot, finely diced
+- 1 celery stalk, finely diced
+- 2 cloves garlic, minced
+- 500 g ground beef
+- 2 tbsp tomato paste
+- 400 g crushed tomatoes (1 tin)
+- 250 ml beef stock, plus a splash more if needed
+- 1 tsp dried oregano
+- Salt and black pepper
+- 400 g dried spaghetti
+- 50 g parmesan, grated, to serve
+
+#### Method
+
+1. Heat the olive oil in a large saucepan over medium heat. Add the onion,
+   carrot and celery and cook for 10 minutes until softened. Add the garlic
+   and cook for 1 minute more.
+2. Raise the heat, add the beef and cook for 5–8 minutes until browned,
+   breaking up any clumps. Stir in the tomato paste and cook for 2 minutes.
+3. Add the crushed tomatoes, stock and oregano. Bring to a gentle simmer,
+   then reduce the heat and cook uncovered for 40 minutes, stirring
+   occasionally. Add a splash of stock if the sauce becomes too thick.
+   Season with salt and pepper to taste.
+4. Near the end of the simmering time, bring a large pot of salted water to
+   the boil. Cook the spaghetti according to the packet instructions until
+   al dente. Reserve a mug of pasta water, then drain.
+5. Toss the spaghetti with the sauce, adding a little reserved pasta water
+   as needed to coat the strands evenly. Divide between four bowls and
+   serve with the parmesan.
+
+#### Notes
+
+- For a richer sauce, replace half the beef with ground pork.
+- For a longer simmer, partially cover the pan and cook the sauce for up to
+  90 minutes, stirring occasionally and adding stock as needed.
